@@ -1,0 +1,5 @@
+- Hi, I am @undefinedWu
+- I am interested in leaning react
+- however, its still may be hard for me
+- so I'd like to discuss it with you
+- of cousrse, you could concact me with QQ which is 2463238851
